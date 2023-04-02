@@ -10,3 +10,7 @@ To Go Down A Layer In The Message Type "\n".
 Screen Shots : 
 
 ![s](https://user-images.githubusercontent.com/94589196/229364128-47dafb3e-af5f-4abb-b332-bf414116129c.png)
+
+
+
+The Mod Is In Release's                                                          ( On Your Right Page )
